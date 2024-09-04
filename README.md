@@ -9,7 +9,7 @@
 ### Para você entrar em contato comigo chame aqui
 - @guizin_6xp
 
-- Email:guilhermme123jy@gmail.com
+- Email: guilhermme123jy@gmail.com
 
  ![](https://media1.tenor.com/m/BWk4_NBCmtgAAAAC/one-piece.gif)
 
